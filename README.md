@@ -1,2 +1,2 @@
 ### Hello! 👋
-I'm Ada and I'm an undergraduate student and tutor at UNSW Sydney.
+I'm Ada. You can find me at [adaluong.me](https://adaluong.me).
